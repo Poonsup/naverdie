@@ -1,0 +1,2 @@
+# naverdie
+noomnaja
